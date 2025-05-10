@@ -1,0 +1,1 @@
+CE human [bandit](https://5e.tools/bestiary.html#bandit_mm)

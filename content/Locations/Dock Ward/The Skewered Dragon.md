@@ -1,0 +1,1 @@
+A dubious and [[NPCs/Zhentarim/index|Zhentarim]]-owned tavern between Net Street and Fillet Lane in the [[Dock Ward/]].
